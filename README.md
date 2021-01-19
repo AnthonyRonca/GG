@@ -1,3 +1,5 @@
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/m2Sk8wiNi5Q/0.jpg)](https://www.youtube.com/watch?v=m2Sk8wiNi5Q)
+
 ## Inspiration
 - Our slogan: "be a helping hand for yourself and the world"
 
